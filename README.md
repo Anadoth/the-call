@@ -6,7 +6,7 @@ Two people pursuing God together — knowing Him more deeply and, more deeply st
 
 If you're worn out drinking from things that never satisfy — the feed, the metric, the next thing — you are called by God, to God.
 
-Two people meet on a standing cadence — once a month is a good default, kept on the calendar — and pursue God out loud together: talking about their real wrestling with the world, with their own lives, with God, and letting that pursuit bear on the actual events of their days. Each holds themselves to their own values and invites the other to do the same.
+Two people meet on a standing cadence — an hour once a month is a good default, kept on the calendar — and pursue God out loud together: talking about their real wrestling with the world, with their own lives, with God, and letting that pursuit bear on the actual events of their days. Each holds themselves to their own values and invites the other to do the same.
 
 The unit is a **dyad**: two people, and only two. A dyad cannot hide — no third party to perform for, no crowd to soften a hard truth into consensus — and it is the only unit with the bandwidth for real depth. When you want more, you add dyads, not people to the room.
 
@@ -14,7 +14,7 @@ The posture is witness, not verdict. You hold yourself to your own values first 
 
 This is a shared search, not a contest to convince. You may hold very different beliefs and keep holding them; the aim is not to win the other over but to help each other see further and live more honestly than either could alone.
 
-That openness extends to atheists and agnostics who are earnestly seeking truth and find the spirit of The Call appealing even if they disagree with the explicitly Christian framing of this practice. The Call was inspired by a friendship between a Christian and an atheist. Neither needs the other to convert. Both value the shared pursuit of truth.
+That openness extends to non-Christians, including atheists and agnostics who are earnestly seeking truth and find the spirit of The Call appealing even if they disagree with the explicitly Christian framing of this practice. This framing could be wrong, and what is asked in return is the same posture of humility: hold your own position seriously, and loosely enough to grant that the other might be right. Neither partner in a dyad needs the other to convert. Both value the shared pursuit of truth.
 
 This is the core of a living practice. Some extensions are described in the rest of this document, and more will be discovered.
 
@@ -30,19 +30,26 @@ The Call is a practice for pursuing God as part of a **dyad** — two partners w
 
 The name is a play on the fact that the practice is often conducted via a phone call. The name The Call also refers to God calling us to Himself, often through our longing and unmet needs.
 
-**The calls are regular, and on the calendar.** This is a standing commitment, not an occasional catch-up when you both happen to have time — the regularity is part of what makes it formation rather than friendship-in-general. The interval is flexible and chosen to suit the dyad; once a month is a good default. Put it on the calendar and keep it there. The rhythm is what lets the pursuit accumulate — each call picking up what the last one surfaced, the accountability having somewhere to land on a known cadence.
+**The calls are regular, and on the calendar.** This is a standing commitment, not an occasional catch-up when you both happen to have time — the regularity is part of what makes it formation rather than friendship-in-general. The interval is flexible and chosen to suit the dyad; an hour once a month is a good default. Put it on the calendar and keep it there. The rhythm is what lets the pursuit accumulate — each call picking up what the last one surfaced, the accountability having somewhere to land on a known cadence.
 
 **What the two of you do:** talk about your real wrestling — with the world, with your own life, with God — in order to share the journey and help each other make progress. You pursue God together, out loud, and you let that pursuit bear on the actual events of your days. God is the center because God is the one goal that outlives every circumstance — unreachable, so the pursuit never ends and never expires. There is an answer; we cannot know it completely; we can always do better.
 
 **And you hold each other accountable to your own stated values** — each person to their own, not to a shared standard imposed from outside. At the start this can be entirely verbal: you say what you are trying to be and how you are trying to live, in whatever rough and evolving words you have, and you invite the other to hold you to it. Writing it down is an option for later (see below); the accountability is the core, and it works from day one in spoken form. You are unvarnished with each other, and you receive the other's honesty as a gift rather than a threat. Full resistance, permanent membership: you push on each other freely, and none of it touches whether you stay.
 
-**This is a shared pursuit of truth, not a debate.** The aim is not to win the other over to your account of things — it is for two people to seek what is true and good together, each helping the other see further and live more honestly than they could alone. You may hold very different beliefs and keep holding them; agreement was never the point. The first dyad this practice grew from is between a Christian and an atheist. After twenty years of exchange, both still hold their positions — and both regard the shared pursuit as one of the most valuable things in their lives, precisely because of how the other has refined them. Neither converted the other; both were sharpened by the other. That is the mode: companions in a search, not opponents in an argument. The moment it becomes a contest to convince, it has stopped being The Call.
+**This is a shared pursuit of truth, not a debate.** The aim is not to win the other over to your account of things — it is for two people to seek what is true and good together, each helping the other see further and live more honestly than they could alone. You may hold very different beliefs and keep holding them; agreement was never the point. The mode is companions in a search, not opponents in an argument. The moment it becomes a contest to convince, it has stopped being The Call.
+
+**You do not have to be a Christian.** The Call is unapologetically Christian and requires that of no one else. All truth seekers are welcome, whether they belong to another tradition, are agnostic, or atheist. This framing could be wrong — the core already grants as much: there is an answer, we cannot know it completely, we can always do better — and the same posture is what is asked in return. Hold your own position seriously, and loosely enough to grant that the other might be right. That bar excludes only the person who has stopped searching, and it excludes them in both directions; a Christian who can no longer be wrong is as poor a partner as an atheist who cannot. The first dyad this practice grew from was between a Christian and an atheist. After twenty years of exchange, both still hold their positions and both continue valuing the shared journey. Neither converted the other; both were sharpened by the other. Neither needs the other to convert. The shared pursuit is the point.
 
 **How you hold each other — the part that keeps this from going wrong.** Accountability between two people is dangerous equipment; used badly it becomes mutual judgment. So the practice has a spine:
 
 - **Hold yourself to your own values first.** The posture is not "I will keep you honest" but "I am trying to live up to what I've said, and I want your help — and I offer you the same." You come as a fellow traveler, not an inspector.
 - **Witness, not verdict.** You testify to what you see and experience — "here is what I noticed, here is how that landed on me" — never pronouncing on the other's motives, heart, or standing before God. You cannot see another person's interior; you can only report your own and describe what is on the surface between you. Judging a pattern of conduct against a standard the other person has themselves stated is fair and is the whole point; judging who they are inside is the drift to refuse.
 - **No forcing.** You do not corner the other into a conclusion or a confession. You offer what you see and leave the response to them and to God — the way the father in the parable of the prodigal son watched the road and ran only when the son turned, rather than chasing him into the far country.
+- **Confidentiality.** Depth is limited by trust, and trust is earned. Both partners keep the content of their discussions confidential from the beginning, with the hope and expectation that trust and vulnerability will grow over time. Your own struggles are yours to bring wherever you need help, including your other dyads; what your partner has shared is not yours to carry there.
+
+**How to start.** New dyads often form when a member of an existing dyad invites someone new into the practice; the experienced partner naturally models the initial calls. If you're starting a new dyad based on this document, a good first call is a discussion of each partner's ideals and what they are wrestling with now. Subsequent calls can pick up on what was surfaced in the last call. The first call will be thinner than the twentieth, so give the calls some time to mature.
+
+**How to end.** Ideally, every dyad is rewarding enough to continue indefinitely. However, a dyad can pause or end; you end it out loud rather than by ghosting. Ending one dyad isn't failure and isn't leaving the practice.
 
 That is the entire core: two people, meeting on a regular cadence, pursuing God out loud, holding themselves and each other to their own values, as witnesses rather than judges. Everything that follows is a way of going deeper — never a requirement for having begun.
 
@@ -54,7 +61,7 @@ A core premise of The Call is that a dyad is optimal for deep spiritual formatio
 
 Pairs are common in other settings where depth is the goal. Marriage, therapy, and spiritual direction are good examples.
 
-The Call takes the same unit and makes it mutual — two peers, aimed at God. It's not an asymmetric student-teacher relationship. And it's not exclusive like a marriage. Being part of multiple dyads is recommended (see below). 
+The Call takes the same unit and makes it mutual — two peers, aimed at God. It's not an asymmetric student-teacher relationship. And it's not exclusive like a marriage. Being part of multiple dyads is recommended (see below).
 
 Larger group meetings have value of their own and can complement participation in one or more dyads, but they can't replace the power of the dyad. One or more parties can check out or be excluded by the loudest voices without anyone else noticing. The allure of conforming to the group can stifle discussion. You cannot simultaneously hold five people in one room to their deepest commitments with the attention you can give to one. A group of five does not give you a fifth of the depth; it gives you a different thing altogether, where the hard truths get diluted into consensus and no one is truly held.
 
@@ -104,7 +111,7 @@ The dyads typically form among people already in your life with some shared seri
 
 ## The Call and the Church
 
-A word on how The Call relates to the Church, because the practice raises the question immediately.
+For Christian readers, a word on how The Call relates to the Church, because the practice raises the question immediately.
 
 The distinction that matters is between the body of Christ — the real Church — and the institutions called "church," which are one way of being that body, not the only way and not one guaranteed to last for the rest of human history. The thing to maintain is the body of Christ. The institutional forms are vehicles for it; they have served that end and can serve it well, but they are means, not the thing itself, and no particular institution is owed permanence.
 
