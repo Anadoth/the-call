@@ -10,6 +10,4 @@ This repository is where we refine the description of The Call together. A few n
 
 ## What this repo is for
 
-Refining the **description** of The Call — the map of something we are each living. It is not a substitute for the practice. If the document ever starts competing with the actual pairs for our attention, the pairs win. (See the note at the top of the README.)
-
 This repo is about the **practice** — the relationship, the commitments, the way it spreads. Anything that isn't the description of the practice belongs somewhere else.
