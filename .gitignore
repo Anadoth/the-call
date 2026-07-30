@@ -1,0 +1,7 @@
+# Cursor / VS Code workspace configurations
+.cursor/
+.vscode/
+
+# Ignore local AI chat history or indexes if generated
+.cursor-tutor/
+.cursor-chat/
