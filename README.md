@@ -14,7 +14,7 @@ The posture is witness, not verdict. You hold yourself to your own values first 
 
 This is a shared search, not a contest to convince. You may hold very different beliefs and keep holding them; the aim is not to win the other over but to help each other see further and live more honestly than either could alone.
 
-That openness extends to non-Christians, including atheists and agnostics who are earnestly seeking truth and find the spirit of The Call appealing even if they disagree with the explicitly Christian framing of this practice. This framing could be wrong, and what is asked in return is the same posture of humility: hold your own position seriously, and loosely enough to grant that the other might be right. Neither partner in a dyad needs the other to convert. Both value the shared pursuit of truth.
+That openness extends to non-Christians, including atheists and agnostics who are earnestly seeking truth and find the spirit of The Call appealing even if they disagree with the explicitly Christian framing of this document. This framing could be wrong, and what is asked in return is the same posture of humility: hold your own position seriously, and loosely enough to grant that the other might be right. Neither partner in a dyad needs the other to convert. Both value the shared pursuit of truth.
 
 This is the core of a living practice. Some extensions are described in the rest of this document, and more will be discovered.
 
@@ -28,7 +28,7 @@ But how do you get there?
 
 The Call is a practice for pursuing God as part of a **dyad** — two partners wrestling with the world, with their own lives, and with God, in order to know Him and be known by Him more and more deeply.
 
-The name is a play on the fact that the practice is often conducted via a phone call. The name The Call also refers to God calling us to Himself, often through our longing and unmet needs.
+The name refers to God calling us to Himself, often through our longing and unmet needs. It is also a play on the fact that the practice is usually conducted via a phone or video call. Meet in person when possible. Presence carries what a call cannot. However, a call offers greater geographic reach and makes it easier to keep the cadence, so it is assumed as the default mode of communication in this document.
 
 **The calls are regular, and on the calendar.** This is a standing commitment, not an occasional catch-up when you both happen to have time — the regularity is part of what makes it formation rather than friendship-in-general. The interval is flexible and chosen to suit the dyad; an hour once a month is a good default. Put it on the calendar and keep it there. The rhythm is what lets the pursuit accumulate — each call picking up what the last one surfaced, the accountability having somewhere to land on a known cadence.
 
@@ -38,7 +38,7 @@ The name is a play on the fact that the practice is often conducted via a phone 
 
 **This is a shared pursuit of truth, not a debate.** The aim is not to win the other over to your account of things — it is for two people to seek what is true and good together, each helping the other see further and live more honestly than they could alone. You may hold very different beliefs and keep holding them; agreement was never the point. The mode is companions in a search, not opponents in an argument. The moment it becomes a contest to convince, it has stopped being The Call.
 
-**You do not have to be a Christian.** The Call is unapologetically Christian and requires that of no one else. All truth seekers are welcome, whether they belong to another tradition, are agnostic, or atheist. This framing could be wrong — the core already grants as much: there is an answer, we cannot know it completely, we can always do better — and the same posture is what is asked in return. Hold your own position seriously, and loosely enough to grant that the other might be right. That bar excludes only the person who has stopped searching, and it excludes them in both directions; a Christian who can no longer be wrong is as poor a partner as an atheist who cannot. The first dyad this practice grew from was between a Christian and an atheist. After twenty years of exchange, both still hold their positions and both continue valuing the shared journey. Neither converted the other; both were sharpened by the other. Neither needs the other to convert. The shared pursuit is the point.
+**You do not have to be a Christian.** This document is written from a Christian perspective but the practice does not require agreement with this perspective. All truth seekers are welcome, whether they belong to another tradition, are agnostic, or atheist. This framing could be wrong — the core already grants as much: there is an answer, we cannot know it completely, we can always do better — and the same posture is what is asked in return. Hold your own position seriously, and loosely enough to grant that the other might be right. That bar excludes only the person who has stopped searching, and it excludes them in both directions; a Christian who can no longer be wrong is as poor a partner as an atheist who cannot. The first dyad this practice grew from was between a Christian and an atheist. After twenty years of exchange, both still hold their positions and both continue valuing the shared journey. Neither converted the other; both were sharpened by the other. Neither needs the other to convert. The shared pursuit is the point.
 
 **How you hold each other — the part that keeps this from going wrong.** Accountability between two people is dangerous equipment; used badly it becomes mutual judgment. So the practice has a spine:
 
@@ -103,9 +103,11 @@ But it is subordinate, always, and the subordination is not a footnote — it is
 
 ## How it spreads
 
-By contagion, never by quota. No one is required to recruit; that is the machinery of a pyramid, and people can smell it. Instead, the practice is built so that being in a good Call relationship naturally makes you want to offer it to someone. If a few people each tend a few dyads, and those dyads quietly seed their own, there is more than enough room for it to spread — without a center anyone could capture, own, or corrupt.
+By contagion, never by quota. No one is required to recruit; that is the machinery of a pyramid, and people can smell it. Instead, the practice is built so that being in a good Call relationship naturally makes you want to offer it to someone. If a few people each tend a few dyads, and those dyads quietly seed their own, there is more than enough room for it to spread.
 
-The dyads typically form among people already in your life with some shared seriousness — a reconnected old friend, a collaborator, someone who mentioned the same longing you feel. Finding them is slow and takes real searching; that difficulty is a feature, not a flaw. It means you arrive ready for depth rather than shopping for it.
+The practice is designed to be a network without a center anyone could capture, own, or corrupt. The Call owns nothing, charges nothing, and no one is paid for it.
+
+The dyads typically form among people already in your life with some shared seriousness — a reconnected old friend, a collaborator, someone who mentioned the same longing you feel. Finding them is slow and takes real searching; that difficulty is a feature, not a flaw. It means you arrive ready for depth.
 
 ---
 
@@ -113,9 +115,9 @@ The dyads typically form among people already in your life with some shared seri
 
 For Christian readers, a word on how The Call relates to the Church, because the practice raises the question immediately.
 
-The distinction that matters is between the body of Christ — the real Church — and the institutions called "church," which are one way of being that body, not the only way and not one guaranteed to last for the rest of human history. The thing to maintain is the body of Christ. The institutional forms are vehicles for it; they have served that end and can serve it well, but they are means, not the thing itself, and no particular institution is owed permanence.
+In an ideal world, The Call would be practiced in parallel with participation in a larger community, such as a church. They are not doing the same job. The Call is built for formation — depth, honesty, and accountability that a group cannot sustain. A larger community offers goods of a different kind, like care at a scale a dyad cannot provide.
 
-Held that way, The Call is simply another way of being the body of Christ — small, personal, accountable. In an ideal world it would sit alongside a healthy congregation, each strengthening the other. But much of what motivated the launch of The Call — first informally, then as something more formalized — was the brokenness of many institutional churches: many have traded formation for information and belonging for performance. So The Call can also stand fully on its own as a way of keeping faith alive and formation real when the institution has abandoned that work. It is not a lesser substitute for the institution; it is a different vehicle for the same body — one that can complement a congregation, or replace a broken one, without apology in either case.
+Despite all the good that churches have done, participation in an institution that calls itself a church is not required. The key thing the Bible calls Christians to do is to be part of the body of Christ — the real Church. No institution can claim to be the sole vehicle for achieving this end. The Call is a completely legitimate way to be part of the body of Christ, including for those who opt out of traditional churches. Formation in the image of God is paramount.
 
 ---
 
@@ -128,8 +130,6 @@ It is not a single official creed enforced on everyone. The content stays radica
 It is not a program with a finish line. No one graduates from The Call; there is no curriculum to complete, no level to reach. It is an ongoing relationship in an unending pursuit — the way friendship is, the way prayer is.
 
 It is not a place to judge each other. The accountability at its core is mutual witness, not mutual verdict — each person holding themselves to their own stated values and offering the other honest testimony, never pronouncing on the other's heart or standing before God. A Call relationship that curdles into two people grading each other has become the opposite of the thing. You come as a fellow traveler who is also trying and also failing, not as an inspector.
-
-It is not a replacement for the body of Christ — it is one way of being that body, alongside others. It can, however, replace a broken institution for someone the institution has failed; the real Church is the body, not any particular vehicle for it (see above).
 
 ---
 
